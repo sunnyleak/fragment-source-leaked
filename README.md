@@ -16,7 +16,6 @@ also he already leaked his drivers after me say i "cracked" then he leaked and s
 proof: https://cdn.discordapp.com/attachments/992136746487791747/1017497100637966396/unknown.png
 
 his drivers:
-https://cdn.discordapp.com/attachments/992136746487791747/1017497821215211520/cracked_fragment_drc.sys
 if u want to download ur self here keyauth info + streamfile driver:
 
 "External"
