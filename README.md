@@ -25,4 +25,11 @@ if u want to download ur self here keyauth info + streamfile driver:
 also here other stream file, (I DIDNT DOWNLOADED SO IDK WHAT IT IS), prob mapper, or rat, or idk: 159616
 streamfile driver: 735555 (he will prob change but i will keep updating idc)
 
+aslo when his mom dont pay him cheet or online shit he scam people:
+https://cdn.discordapp.com/attachments/1017596124145651835/1017597110251700284/unknown.png
+https://cdn.discordapp.com/attachments/1017596124145651835/1017596451875987507/unknown.png
+https://cdn.discordapp.com/attachments/1017596124145651835/1017627926398771280/IMG_2663.png
+https://cdn.discordapp.com/attachments/1017596124145651835/1017627926117765151/IMG_2664.png
+https://cdn.discordapp.com/attachments/1017596124145651835/1017627925773824020/IMG_2665.png
+
 if u have any questions or want more proof about 12y kid, dm me: $unny#0001
