@@ -31,5 +31,9 @@ https://cdn.discordapp.com/attachments/1017596124145651835/1017596451875987507/u
 https://cdn.discordapp.com/attachments/1017596124145651835/1017627926398771280/IMG_2663.png
 https://cdn.discordapp.com/attachments/1017596124145651835/1017627926117765151/IMG_2664.png
 https://cdn.discordapp.com/attachments/1017596124145651835/1017627925773824020/IMG_2665.png
+https://media.discordapp.net/attachments/1017596124145651835/1017630471057834054/IMG_2667.png?width=312&height=675
+https://media.discordapp.net/attachments/1017596124145651835/1017630470697127976/IMG_2668.png?width=312&height=675
+https://media.discordapp.net/attachments/1017596124145651835/1017630470328025148/IMG_2669.png?width=312&height=675
+https://media.discordapp.net/attachments/1017596124145651835/1017630469979918357/IMG_2670.png?width=312&height=675
 
 if u have any questions or want more proof about 12y kid, dm me: $unny#0001
