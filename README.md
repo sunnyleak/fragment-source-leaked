@@ -4,7 +4,9 @@ Thermal#5000 sold free shit drivers so im leaking his public source
 who is not deadbrain know thermal is using pasted makfn src 💀 but anyway, nothing we can do, he is 12y :/
 
 here fragment source download: https://www.mediafire.com/file/kemc3w72866yr0f/fragment+source+leaked.rar/file password: 123
+
 builded updated: https://cdn.discordapp.com/attachments/1012669277100326932/1017210033458663514/suiiiii.exe
+
 if u dont want update, here his last build, just load drivers then open suuiii.exe (idk if u need key, but im pretty sure u dont)
 
 also he sold me shit drivers, the deal was buy fragment drivers, when i tried use fragment build it said "drivers not loaded" :sad:
@@ -13,6 +15,7 @@ proof: https://cdn.discordapp.com/attachments/992136746487791747/101749696703261
 
 then i "cracked" his loader and got the drivers i want 😻
 also he already leaked his drivers after me say i "cracked" then he leaked and said "im leaking my drv so sunny cant ego me 💀" after 2days he deleted. kid have no balls
+
 proof: https://cdn.discordapp.com/attachments/992136746487791747/1017497100637966396/unknown.png
 
 his drivers:
