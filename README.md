@@ -3,7 +3,7 @@ Thermal#5000 sold free shit drivers so im leaking his public source
 
 who is not deadbrain know thermal is using pasted makfn src 💀 but anyway, nothing we can do, he is 12y :/
 
-here fragment source download: https://www.mediafire.com/file/264cot7b52z7o49/fragment+source+leaked.rar/file
+here fragment source download: https://www.mediafire.com/file/kemc3w72866yr0f/fragment+source+leaked.rar/file password: 123
 builded updated: https://cdn.discordapp.com/attachments/1012669277100326932/1017210033458663514/suiiiii.exe
 if u dont want update, here his last build, just load drivers then open suuiii.exe (idk if u need key, but im pretty sure u dont)
 
